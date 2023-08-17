@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @belkatanya21
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...sdf
 - 💞️ I’m looking to collaborate on ... jttr
 - 📫 How to reach me ...babduk faino
  3h65mfhjmfjtyaerferf
