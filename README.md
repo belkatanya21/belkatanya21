@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...sdf
 - 💞️ I’m looking to collaborate on ... jttr
-- 📫 How to reach me ...babduk faino
+- 📫 How to reach me ...babduk faino ratg
  3h65mfhjmfjtyaerferf
 <!--- h356
 belkatanya21/belkatanya21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
