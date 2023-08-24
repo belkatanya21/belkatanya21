@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...sdf
 - 💞️ I’m looking to collaborate on ... jttrrthrthrtht
 - 📫 How to reach me ...babduk faino ratg rt
- 3h65mfhjmfjtyaerferfe 67k
+ 3h65mfhjmfjtyaerferfe 67k kyu
 <!--- h356
 belkatanya21/belkatanya21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
