@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @belkatanya21
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...sdf rtwhgwerwerg
-- 💞️ I’m looking to collaborate on ... jttrrthrthrthtg hxfhgf
+- 💞️ I’m looking to collaborate on ... jttrrthrthrthtg hxfhgfy w4
 - 📫 How to reach me ...babduk faino ratg rt 5w4y 6456tryrt
  3h65mfhjmfjtyaerferfe 67k kyu
 <!--- h356
